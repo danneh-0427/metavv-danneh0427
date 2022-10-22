@@ -1,1 +1,0 @@
-# Jiun's metavv-study
